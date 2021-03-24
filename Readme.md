@@ -28,6 +28,7 @@ Cuando se le ve de frente lo primero que podemos notar son sus enormes tomas de 
 ![Ford Mustag shelby GT500 2020](https://www.ford.mx/content/dam/Ford/website-assets/latam/mx/nameplate/shelby-gt500/2020/overview/features/fmx-shelby-gt500-banner.jpg/_jcr_content/renditions/small)
 
 
+>**El precio de este hermoso auto ronda los 2.2 millones de pesos**
 
 
 
